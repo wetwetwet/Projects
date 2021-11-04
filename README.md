@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @wetwetwet
+- 👀 I’m interested in finding interesting business insights from data!
+- 🌱 I’m currently persuing my Master degree in Business Analytics in NTU.
+- 📫 How to reach me : tw.melody@gmail.com
